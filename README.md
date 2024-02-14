@@ -1,5 +1,5 @@
-### Olá,eu sou Isaque Bispo👋
-
+### Olá,eu sou Isaque Bispo, fascinado e muito curioso por aprender mais sobre tecnologia 💻👋
+ 
 - 👜 Hoje trabalho com suporte de tecnologia da informação
 - 🎓 Estudando engenharia da computação
 -  📫 Contate-me no email: isaquebispo08@gmail.com
